@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @jonwinet
 - 👀 To quote a colleague in Newcastle Upon Tyne: I’m interested in what's interesing 
 - 🌱 I’m currently working on range of public digital arts and humanities projects and curatorial projects
-- 💞️ I’m looking to collaborate
+- 💞️ I’m looking to collaborate (isn't everyone?)
 - 📫 contact: albanybulbeventseries at gee mail
 
 <!---
